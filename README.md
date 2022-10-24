@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @blockbeast914
+- 👀 I’m interested in games
+- 💞️ I’m not looking to colab
